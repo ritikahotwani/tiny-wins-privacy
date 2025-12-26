@@ -1,3 +1,5 @@
+# Tiny Wins Privacy Policy
+
 Privacy Policy for Tiny Wins
 
 Tiny Wins respects your privacy.
